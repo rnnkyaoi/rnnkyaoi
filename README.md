@@ -4,4 +4,4 @@
   <img height="200" src="https://files.catbox.moe/pkflkx.png"  />
 </div>
 
-                       **ivo** or [rinne](https://ensemble-stars.jp/characters/amagi_rinne/) 、*blasian* ✮ [pt info](https://rentry.co/-thrilladdict-)
+                       **ivo** , mugi , or [rin](https://ensemble-stars.jp/characters/amagi_rinne/) 、*blasian* ✮ [pt info](https://rentry.co/-thrilladdict-)
